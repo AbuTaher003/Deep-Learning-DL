@@ -1,0 +1,1 @@
+[Click here to download the note](https://drive.google.com/file/d/1HqgG7QgI32yI1_WfRMu3C-4vPDIpjkaC/view?usp=drive_link)

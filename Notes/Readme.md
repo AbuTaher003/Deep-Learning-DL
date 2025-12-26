@@ -1,1 +1,2 @@
-``` Here I will upload the hand written notes from video 30 to the rest```
+- ``` Here I will upload the hand written notes from video 30 to the rest```
+- ``` To get the notes for video 1 to 29, follow 100DaysDL repository.```
